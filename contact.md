@@ -17,4 +17,4 @@ Munshiganj, Bangladesh.
 
 #### Visiting hour:
 
-Every day from **10 AM to 02.30 PM** (Thursday and Friday Closed).
+Every day from **11 AM to 01.00 PM** and **05 PM to 08 PM** (Friday and Saturday Closed).
